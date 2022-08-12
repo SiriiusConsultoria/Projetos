@@ -1,3 +1,0 @@
-# Projetos
-Emulação
-Avanti Palmeiras
